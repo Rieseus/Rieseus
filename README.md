@@ -1,8 +1,7 @@
 Hello there! Neighbor
 
 I am called Riese, Rieseus coz Riese is taken ;-;
-I do play games for fun and program things
-Games? I enjoy mmorpg or rpg 
+I do play games for fun and program things, I enjoy mmorpg or rpg 
 
 
 
